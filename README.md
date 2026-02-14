@@ -15,11 +15,11 @@
 - 5. Social media oddities. News feed from hell? No matter how many times you remove the schit it keeps coming back. Don't be disappointed after you find out it isn't the apps platform.
 - 6. Gaslighting. A bit of skepticism is healthy, but not when it comes to this. They are ruining your life, one person at a time.
 - 7. Fake Dexters. Nobody plays the 'good guys' better than the bad ones. A frequently used exploit making it permissible to do what they do, but in the light with a captive audience. Sometimes things go wrong. Imagine a case of mistaken identity, then having to justify ruining a person's life, it happens.
-- 8. Overton window breakers. Imagine having a set of specific circumstances you are dealing with. On the verge of reporting these 'issues' online, you notice find fresh and active people with your same exact circumstances, all over the place. Except they're making it look ridiculous. You got beat to the punch.
+- 8. Overton window breakers. Imagine having a set of specific circumstances you are dealing with. On the verge of reporting these 'issues' online, you notice fresh and active people with your same exact circumstances, all over the place. Except they're making it look ridiculous. You got beat to the punch.
 - 9. Theft of course. Money, assets, or even government benefits stolen, but it doesn't stop there.
 - 10. Coming home to disaster. Every single cord in the entire house has been physically severed in half. Electrical, ethernet, telephone, audio, and cable. Your home has the potential to be used as a warzone to wreck havoc upon you, or anyone else in the vicinity. Several reports were immediately filed with the police.
 
 # Getting to the heart of the matter
-- What's your point? And what do your competitors and/or their affiliated websites have to with any of this?
+- What's your point? And what do your competitors and/or their affiliated websites have to do with any of this?
 
 ***Absolutely, positively, everything and a bag of chips. Welcome to the post-apocalyptic world of software engineering. Think twice before opening the door***
