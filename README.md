@@ -1,10 +1,11 @@
 # On the surface
 ***Flags your professional life is being targeted***
-- ![Alt text](/danger.jpg "")
+
+<a href="https://" target="_blank"><img src="danger.jpg" alt=" " width="720"/></a>
 
 ***This is what a professional hitjob looks like. This could potentially be nation state actors, third party professionals, or even a corporation***
-- ![Alt text](/just-in-time.jpg "")
 
+<a href="https://" target="_blank"><img src="just-in-time.jpg" alt=" " width="720"/></a>
 
 # Deep below
 ***Flags your circle has been social engineered***
@@ -20,6 +21,13 @@
 - 10. Theft of course. Money, assets, or even government benefits stolen, but it doesn't stop there.
 - 12. Weaponization of your vicinity. Imagine busting a housemate creeping around your room while you sleep. Mind you, the ***only*** three times you forgot to lock your room. What about waking up to phones and tablets slid underneath your door, wedged up with the camera pointed right towards your bed. Or how about being told you're being recorded on a semi-weekly basis? This was my life for nearly two years. Oh the things you'll put up with for cheap rent, but it may be costing you more than you realize.
 - 13. Coming home to disaster. Every single cord in the entire house has been physically severed in half. Electrical, ethernet, telephone, audio, and cable. Your home has the potential to be used as a warzone to wreck havoc upon you, or anyone else in the vicinity. Several reports were immediately filed with the police.
+
+# Destroying the remnants of normalcy in a person's life achieves what exactly? 
+- ***A recipe for making monsters through destabilization (of course)***
+
+<a href="https://" target="_blank"><img src="normalcygone.jpg" alt=" " width="720"/></a>
+
+- By the time you notice that anything remotely resembling regular conversation with friends or family is now a past-time, it's too late.
 
 # Getting to the heart of the matter
 - What's your point? And what do your competitors and/or their affiliated websites have to do with any of this?
