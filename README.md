@@ -29,7 +29,7 @@
 
 - By the time you notice that anything remotely resembling regular conversation with friends or family is now a past-time, it's too late.
 
-## You'll names will be revealed and made public, even if it's the last thing I do
+## Your names will be revealed and made public, even if it's the last thing I do
 
 <a href="https://" target="_blank"><img src="masspsychosis.jpg" alt=" " width="720"/></a>
 
