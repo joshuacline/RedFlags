@@ -32,7 +32,7 @@
 
 ## Your names will be revealed and made public, even if it's the last thing I do
 
-<a href="https://" target="_blank"><img src="masspsychosis.jpg" alt=" " width="720"/></a>
+<a href="https://youtu.be/eDuRoPIOBjE" target="_blank"><img src="masspsychosis.jpg" alt=" " width="720"/></a>
 
 - Every single online community knows ***exactly*** who's responsible, and the truth will eventually come out. In the meantime, your communities can look like the disgusting shite that they are.
 - For anyone who's wondering, and I'm sure there's quite a few, the ***only*** legal trouble I've been in within nearly the past two decades is a ticket for expired plates. That's it.
