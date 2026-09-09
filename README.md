@@ -31,6 +31,8 @@
 
 - By the time you notice that anything remotely resembling regular conversation with friends or family is now a past-time, it's too late.
 
+<a href="https://" target="_blank"><img src="mysteriousdepartures.jpg" alt=" " width="720"/></a>
+
 # Public stalking, oddities, and harassment
 - Without getting into the uncomfortable scenerios I've encountered or various strangers who've approached me in public since becoming a developer of operating system deployment tools, I'll say this - it's been unnerving. Here we have a gentleman that seemed alright at first glance, though looks can be deceiving. Sometimes you may have to take matters into your own hands, especially when they've been persistent after making it abundantly clear to leave you alone. What a creep. 
 
