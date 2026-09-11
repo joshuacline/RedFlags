@@ -34,6 +34,9 @@
 <a href="https://" target="_blank"><img src="mysteriousdepartures.jpg" alt=" " width="720"/></a>
 
 # Public stalking, oddities, and harassment
+
+<a href=" " target="_blank"><img src="twintowerstapestry.jpg" alt=" " width="720"/></a>
+
 - Without getting into the uncomfortable scenerios I've encountered or various strangers who've approached me in public since becoming a developer of operating system deployment tools, I'll say this - it's been unnerving. Here we have a gentleman that seemed alright at first glance, though looks can be deceiving. Sometimes you may have to take matters into your own hands, especially when they've been persistent after making it abundantly clear to leave you alone. What a creep. 
 
 <a href="https://youtu.be/5sENQNspLC8" target="_blank"><img src="peeparazzi.jpg" alt=" " width="720"/></a>
