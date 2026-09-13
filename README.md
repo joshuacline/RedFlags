@@ -48,6 +48,6 @@
 - Every single online community knows ***exactly*** who's responsible, and the truth will eventually come out. In the meantime, your communities can look like the disgusting shite that they are.
 - For anyone who's wondering, and I'm sure there's quite a few, the ***only*** legal trouble I've been in within nearly the past two decades is a ticket for expired plates. That's it.
 
-<a href=" " target="_blank"><img src="attemptedmurder.jpg" alt=" " width="720"/></a>
+<a href="https://youtu.be/5D3crqpClPY" target="_blank"><img src="attemptedmurder.jpg" alt=" " width="720"/></a>
 
 - Part of the conspiracy, or uncovered conspiracy plot? You decide.
