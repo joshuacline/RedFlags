@@ -55,3 +55,5 @@
 - What's your point? And what do your competitors and/or their affiliated websites have to do with any of this?
 
 ***Absolutely, positively, everything and a bag of chips. Welcome to the post-apocalyptic world of software engineering. Think twice before opening the door***
+
+<a href=" " target="_blank"><img src="attemptedmurder.jpg" alt=" " width="720"/></a>
