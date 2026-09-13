@@ -48,12 +48,6 @@
 - Every single online community knows ***exactly*** who's responsible, and the truth will eventually come out. In the meantime, your communities can look like the disgusting shite that they are.
 - For anyone who's wondering, and I'm sure there's quite a few, the ***only*** legal trouble I've been in within nearly the past two decades is a ticket for expired plates. That's it.
 
-# Getting to the heart of the matter
-
-***Remember this, only complete losers who weren't able to achieve satisfaction in life thrive on destroying others' lives. That's a fact.***
-
-- What's your point? And what do your competitors and/or their affiliated websites have to do with any of this?
-
-***Absolutely, positively, everything and a bag of chips. Welcome to the post-apocalyptic world of software engineering. Think twice before opening the door***
-
 <a href=" " target="_blank"><img src="attemptedmurder.jpg" alt=" " width="720"/></a>
+
+- Part of the conspiracy, or uncovered conspiracy plot? You decide.
