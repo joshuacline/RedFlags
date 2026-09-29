@@ -56,4 +56,9 @@
 <summary> ⚠️ You decide ⚠️ </summary>
 
 <a href="https://youtu.be/uaS3xDe1-l8&t=256s" target="_blank"><img src="patternsofproximity.jpg" alt="🤢🤢🤢" width="720"/></a>
+
+- Julian Assange had the safety of an embassy. I don't know who's who, I'm just trying to warn you.
+
+<a href="https://youtu.be/hMtZfW2z9dw" target="_blank"><img src="closeyourwindows.jpg" alt="🪳" width="720"/></a>
+
 </details>
