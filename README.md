@@ -53,12 +53,18 @@
 - Part of the conspiracy, or uncovered conspiracy plot?
 
 <details>
-<summary> ⚠️ You decide ⚠️ </summary>
+<summary>⚠️👇You decide👇⚠️</summary>
 
 <a href="https://youtu.be/uaS3xDe1-l8&t=256s" target="_blank"><img src="patternsofproximity.jpg" alt="🤢🤢🤢" width="720"/></a>
 
 - Julian Assange had the safety of an embassy. I don't know who's who, I'm just trying to warn you.
 
 <a href="https://youtu.be/hMtZfW2z9dw" target="_blank"><img src="closeyourwindows.jpg" alt="🪳" width="720"/></a>
+
+- Who does this crap? Let’s go ahead and spill the beans. Likely you've guessed it already. Nasties that want to bring you down to their level. Peepers, stalkers, creepers, losers, s*x-offenders, predators, weepers..and from the looks of it with venereal diseases. Spreading equity in misery. Maybe I'm misreading(unlikely), and if you think it's something else, I'm all ears.
+
+<a href="https://youtu.be/jXvHtpUF9l0" target="_blank"><img src="fogelgangs.jpg" alt=" " width="720"/></a>
+
+- No matter which way you spin it, they're creeps, ***that's a fact.*** Think being being a predator makes you a badass? What world are you even living in? Wait until you see what your local prison yard will do with you, tough guys and gals. Or go and have a visit with Samson and snap out of your miserable little lives.
 
 </details>
