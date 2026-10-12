@@ -65,6 +65,7 @@
 
 <a href="https://youtu.be/jXvHtpUF9l0" target="_blank"><img src="fogelgangs.jpg" alt=" " width="720"/></a>
 
-- No matter which way you spin it, they're creeps, ***that's a fact.*** Think being being a predator makes you a badass? What world are you even living in? Wait until you see what your local prison yard will do with you, tough guys and gals. Or go and have a visit with Samson and snap out of your miserable little lives.
+- No matter which way you spin it, they're creeps, ***that's a fact.*** Think being a predator makes you a badass? What world are you even living in? Wait until you see what your local prison yard will do with you, tough guys and gals. Or go and have a visit with Samson and snap out of your miserable little lives.
 
 </details>
+
