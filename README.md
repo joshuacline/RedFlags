@@ -16,7 +16,7 @@
 - No longer than 4 days after rebranding, the new name has been stolen, along with the search results.
 <a href=" " target="_blank"><img src="Oct17_2026_NameAndSEOTheft.jpg" alt=" " width="720"/></a>
 
-
+- Several prominent online communities know the originating names, developers, and affiliated Windows tools responsible. Never will I ***ever***, ***EVER*** let this go until these communities and responsible parties are held to account. ***Do not become a software developer, they will attack you, your reputation, your place of employment, your social circle, trying to get you evicted onto the street, and will continue to attack you seemingly until you're dead. They'll reward those who damage you, while damaging those who help you. These people are literally the worst type of scum in existence. It's surreal, and unfortunately real.*** 
 
 # Deep below
 ***Flags your circle has been social engineered***
