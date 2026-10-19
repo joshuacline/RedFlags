@@ -8,13 +8,15 @@
 <a href="https://youtu.be/F7FppXJ-3YY" target="_blank"><img src="just-in-time.jpg" alt=" " width="720"/></a>
 
 ***I've been in a state of constant grief, theft, and harassment since the very beginning of development. Now they know everyone knows about it, so they stopped trying to hide.***
-
-- They ruined the results for every search engine, and VirusTotal results as well, ***permanently***. So I decided to go through a rebranding effort, and see how well it turns out.
+- Back in December of 2022, a few weeks after the first release here on github, they created a new YouTube account that had the creation date of 12/1/2022 with the same handle 'joshuacline' as my legal name and github account. That account has since been deleted and replaced with yet another 'joshuacline' handle seemingly created in 2024. They are running rotations of username handles to stifle, sabatoge, and destroy morale of new unsuspecting software developers. It's reprehensible and disgusting.
+- They ruined the results for every search engine, and VirusTotal results as well, ***permanently***. Additionally they ruined the results for my full legal name with nasty nasty stuff. So I decided to go through a rebranding effort, and see how well it turns out.
 - It started out great. Now featuring a spotless clean bill of health, and no prior tools or pesky search results for 'WinPloy'. See it for yourself: https://www.virustotal.com/gui/file/9b7c35d8f7996dfc870dab2d8709289b9068b264b3915388154892a25442b1fe/
 <a href=" " target="_blank"><img src="Oct06_2026_NameAndSEOTheft.jpg" alt=" " width="720"/></a>
 
 - No longer than 4 days after rebranding, the new name has been stolen, along with the search results.
 <a href=" " target="_blank"><img src="Oct17_2026_NameAndSEOTheft.jpg" alt=" " width="720"/></a>
+
+***It's more than name squatting. Hence, the features and description. It's meant to defraud and mislead users, and to divert traffic from my project that I've spent over five years developing. My project has had zero media coverage, not an article, not a video, nothing.***
 
 - Several prominent online communities know the originating names, developers, and affiliated Windows tools responsible. Never will I ***ever***, ***EVER*** let this go until these communities and responsible parties are held to account. ***Do not become a software developer, they will attack you, your reputation, your place of employment, your social circle, trying to get you evicted onto the street, and will continue to attack you seemingly until you're dead. They'll reward those who damage you, while damaging those who help you. These people are literally the worst type of scum in existence. It's surreal, and unfortunately real.*** 
 
