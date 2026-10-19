@@ -16,7 +16,7 @@
 - No longer than 4 days after rebranding, the new name has been stolen, along with the search results.
 <a href=" " target="_blank"><img src="Oct17_2026_NameAndSEOTheft.jpg" alt=" " width="720"/></a>
 
-***It's more than name squatting. Hence, the features and description. It's meant to defraud and mislead users, and to divert traffic from my project that I've spent over five years developing. My project has had zero media coverage, not an article, not a video, nothing.***
+***It's more than name squatting. Hence, the features and description. It's meant to defraud and mislead users, and to divert traffic from my project that I've spent over five years developing. These are the same exact folks over and over, who think that they're clever and that they've fooled everyone by pretending to be from many different places with several different foreign languages. It's fake and is likely originating from the U.S. and Germany. Meanwhile, my project has had zero media coverage, not an article, not a video, nothing.***
 
 - Several prominent online communities know the originating names, developers, and affiliated Windows tools responsible. Never will I ***ever***, ***EVER*** let this go until these communities and responsible parties are held to account. ***Do not become a software developer, they will attack you, your reputation, your place of employment, your social circle, trying to get you evicted onto the street, and will continue to attack you seemingly until you're dead. They'll reward those who damage you, while damaging those who help you. These people are literally the worst type of scum in existence. It's surreal, and unfortunately real.*** 
 
