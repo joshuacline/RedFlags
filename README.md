@@ -74,7 +74,7 @@ Amazing. Would you look at that, a clear-cut case of publice xtortion. Who knew?
 
 <a href=" " target="_blank"><img src="publicextortion.jpg" alt=" " width="720"/></a>
 
-You'll never get single a penny from me, I can assure you that.
+You'll never get a single penny from me, I can assure you that.
 
 <a href="https://youtu.be/vpdJI0gg4IU" target="_blank"><img src="mafia.jpg" alt=" " width="720"/></a>
 
