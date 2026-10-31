@@ -3,7 +3,7 @@
 
 <a href="https://" target="_blank"><img src="danger.jpg" alt=" " width="720"/></a>
 
-***This is what a professional hitjob looks like. This could potentially be nation state actors, third party professionals, or even a corporation***
+***This is what a professional hitjob looks like. This could potentially be nation state actors, third party professionals, or even a corporation. As it turns out, it's been an extortion attempt all along, with the participation of multiple communities watching in glee. Who knew?***
 
 <a href="https://youtu.be/F7FppXJ-3YY" target="_blank"><img src="just-in-time.jpg" alt=" " width="720"/></a>
 
@@ -69,6 +69,12 @@
 <summary>⚠️👇You decide👇⚠️</summary>
 
 <a href="https://youtu.be/uaS3xDe1-l8&t=256s" target="_blank"><img src="patternsofproximity.jpg" alt="🤢🤢🤢" width="720"/></a>
+
+Amazing. Would you look at that, a clear-cut case of publice xtortion. Who knew?
+
+<a href=" " target="_blank"><img src="publicextortion.jpg" alt=" " width="720"/></a>
+
+You'll never get single a penny from me, I can assure you that.
 
 <a href="https://youtu.be/vpdJI0gg4IU" target="_blank"><img src="mafia.jpg" alt=" " width="720"/></a>
 
