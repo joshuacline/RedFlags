@@ -63,10 +63,10 @@
 
 <a href="https://youtu.be/5D3crqpClPY" target="_blank"><img src="attemptedmurder.jpg" alt=" " width="720"/></a>
 
-- Part of the conspiracy, or uncovered conspiracy plot?
+- What does multi-community extortion look like?
 
 <details>
-<summary>⚠️👇You decide👇⚠️</summary>
+<summary>⚠️👇Proceed With Caution👇⚠️</summary>
 
 <a href="https://youtu.be/uaS3xDe1-l8&t=256s" target="_blank"><img src="patternsofproximity.jpg" alt="🤢🤢🤢" width="720"/></a>
 
