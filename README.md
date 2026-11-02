@@ -91,7 +91,7 @@ You'll never get a single penny from me, I can assure you that.
 ## News: As of 11-1-26, I've left XDA Forums
 <a href=" " target="_blank"><img src="patsythis.jpg" alt=" " width="720"/></a>
 
-Note to Cereberus: I don't give a rat's behind if I was hacked last year or 10 years ago. I don't do anything illegal, so it doesn't bother me as much as it sounds like would you or your ilk. Do not interfere with me or where ever I decide next to market my tool. If you try to pull any more stunts at another site, forum, reddit, or anywhere not otherwise specified, I'll press charges.
+Note to Cereberus: I don't give a rat's behind if I was hacked last year or 10 years ago. I don't do anything illegal, so it doesn't bother me as much as it sounds like it would you or your ilk. Do not interfere with me or where ever I decide next to market my tool. If you try to pull any more stunts at another site, forum, reddit, or anywhere not otherwise specified, I'll press charges.
 
 </details>
 
