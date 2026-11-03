@@ -96,7 +96,7 @@ Note to Cereberus: I don't give a rat's behind if I was hacked last year or 10 y
 ## Common sense enters the room
 - It goes without saying but I'll say it anyways. It wouldn't be wise for a person to use their legal name on the internet if there were a record attached to it.
 
-<a href=" " target="_blank"><img src="thenrealityhappened.jpg" alt=" " width="720"/></a>
+<a href="https://youtu.be/FHmYckMtU54" target="_blank"><img src="thenrealityhappened.jpg" alt=" " width="720"/></a>
 
 - Especially if their pimp hand was strong.
 
