@@ -108,5 +108,7 @@ When a person has a clean record, the internet boogiemen are left with nothing t
 
 ***Let them seethe.***
 
+<a href="https://youtu.be/GLVeDzIJFLA" target="_blank"><img src="itsboombasticrly.gif" alt="function get-mad -scheduleitem 'milkshakes' -time 'maybenextlife'" width="720"/></a>
+
 </details>
 
