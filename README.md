@@ -22,7 +22,7 @@
 
 # Deep below
 ***Flags your circle has been social engineered***
-- 1. Old friends, acquaintances, exces, contacting you to glean information. It may be a just little chat to start. Things might get weird later. Anything obtained about you whether it be real, fake, or perceived, will be used to spider their way through your network.
+- 1. Old friends, acquaintances, exces, contacting you to glean information. It may be a just little chat to start. Things might get weird later. Anything obtained about you whether it be real, fake, or perceived, will be used to spider their way through your network. Only one person reached out to warn ***"Heads up, I think someone wants you to delete your app."*** back in 2023.
 - 2. Don't wait. Friends, family, roommates, or even coworkers who could have been a witness, can now be blackmailed after their participation.
 - 3. You've waited too long. At this point it's self preservation. They must continue to harass or collect information on you, or else.
 - 4. There's a new kind of unpersoning, and it's more sinister than you think. They could be attacking your social circle so there's nobody left to speak up when your reputation is under assault. Since they cannot erase the past, the next best thing is neutralizing the witnesses. For example, let's say you were ***the*** stud or mister popular throughout your college years. Simple facts such as this diametrically opposes and would unravel the narrative of you being a 'McLovin' or a 'creepy Cameron'. Likely these are precisely the archetypes belonging to the individuals who are doing the attacking. Ironic but not surprising. ***Stay in touch with old friends, especially if you notice something is not right.***
