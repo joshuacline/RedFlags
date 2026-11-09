@@ -1,8 +1,9 @@
+# The last several years of my life in a nutshell
+
 <a href=" " target="_blank"><img src="developerkillers.jpg" alt=" " width="720"/></a>
 
 
-
-# On the surface
+## On the surface
 ***Flags your professional life is being targeted***
 
 <a href="https://" target="_blank"><img src="danger.jpg" alt=" " width="720"/></a>
@@ -24,7 +25,7 @@
 
 - Several prominent online communities know the originating names, developers, and affiliated Windows tools responsible. Never will I ***ever***, ***EVER*** let this go until these communities and responsible parties are held to account. ***Do not become a software developer, they will attack you, your reputation, your place of employment, your social circle, trying to get you evicted onto the street, and will continue to attack you seemingly until you're dead. They'll reward those who damage you, while damaging those who help you. These people are literally the worst type of scum in existence. It's surreal, and unfortunately real.*** 
 
-# Deep below
+## Deep below
 ***Flags your circle has been social engineered***
 - 1. Old friends, acquaintances, exces, contacting you to glean information. It may be a just little chat to start. Things might get weird later. Anything obtained about you whether it be real, fake, or perceived, will be used to spider their way through your network. Only one person reached out to warn ***"Heads up, I think someone wants you to delete your app."*** back in 2023.
 - 2. Don't wait. Friends, family, roommates, or even coworkers who could have been a witness, can now be blackmailed after their participation.
