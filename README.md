@@ -2,6 +2,9 @@
 
 <a href=" " target="_blank"><img src="developerkillers.jpg" alt=" " width="720"/></a>
 
+***The modern Zersetzung***
+
+<a href=" " target="_blank"><img src="modernzersetzung.jpg" alt=" " width="720"/></a>
 
 ## On the surface
 ***Flags your professional life is being targeted***
